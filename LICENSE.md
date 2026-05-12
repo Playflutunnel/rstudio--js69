@@ -1,4 +1,4 @@
-# 
+# vip RStudio for PC | RStudio for Windows Integration | data-analysis + report-generation offers the most advanced RStudio for PC | RStudio for Windows integration, with
 
 
 
